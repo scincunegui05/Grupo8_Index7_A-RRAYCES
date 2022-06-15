@@ -10,7 +10,7 @@
 
 # A-RRAYCES 🌱
 
-**¿Qué productos o servicios brindará nuestro sitio?**
+**¿Qué productos o servicios brindará nuestro sitio?** 🎍
 
 Productos: Plantas, macetas, sustratos, agroquímicos: fertilizantes, insecticidas y fungicidas, orgánicos, herbicidas. 
 Servicio: Asesoramiento, sección de tips y cuidados para las plantas. 
@@ -19,7 +19,7 @@ Servicio: Asesoramiento, sección de tips y cuidados para las plantas.
 
 Público objetivo, personas de 25 a 35 años 
 
-**¿Cómo ajustaremos nuestra oferta a ese público?**
+**¿Cómo ajustaremos nuestra oferta a ese público?** ⚗️
 
 Los productos que vamos a ofrecer están enfocados a una audiencia de entre 25 y 35 años que pasan muchas horas en el hogar, ya sea porque realizan home office o porque estudian de manera virtual. También está pensado para personas que realizan algún tipo de entrenamiento o actividad física en el hogar, personas que vivan solas o en pareja y quieran embellecer su hogar con plantas de calidad, cuidarlas con productos premium y ecológicos.
 Algunos de los productos que vamos a ofrecer además de diversidad de plantas, son: macetas, sustratos, agroquímicos: fertilizantes, insecticidas y fungicidas, orgánicos, herbicidas. También brindaremos una sección de tips y cuidados para asesorar a nuestros clientes sobre el cuidado de las plantas. 
